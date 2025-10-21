@@ -1,0 +1,7 @@
+- Applica metodi tradizionali a soggetti contemporanei.
+- Si ritiene un realista, e rifiutò il termine **impressionismo**.
+- Tra le tecniche usate c'erano i dipinti ad olio e la mina di piombo.
+- Era **pittore di storia**, ma dipingeva soggetti contemporanei.
+- Era maggiormente ispirato da i maestri veneti (Giorgione), da cui deriva una spregiudicata disinvoltura con il colore, e Ingres.
+- Era sua intenzione gettare un ponte tra due epoche, legando il *passato* al *presente*, il *vecchio* al *nuovo*.
+- Il principale punto di riferimento in rapporto al quale si è costituita l'arte degassiana è la pittura classicista di [Jean-Auguste-Dominique Ingres](https://it.wikipedia.org/wiki/Jean-Auguste-Dominique_Ingres "Jean-Auguste-Dominique Ingres").
